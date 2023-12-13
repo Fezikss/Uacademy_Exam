@@ -1,1 +1,0 @@
-# Uacademy_Exam
